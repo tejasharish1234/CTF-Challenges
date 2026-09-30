@@ -66,4 +66,4 @@ Each folder includes:
 
 
 
-PS: If you're from the "What's wrong with my resume" challenge: The resume was put on a website and not given to you as a PDF for a reason... 
+PS: If you're here about the "What's wrong with my resume" challenge: The resume was put on a website and not given to you as a PDF for a reason... Dont waste time downloading it.
